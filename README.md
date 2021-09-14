@@ -6,6 +6,6 @@
 > https://trello.com/b/Z3D6WE8I/social-responsibility
 
 ### Discord: 
-> BrainX#5624 (Alex)
-> Thies_vdz#4942 (Thies)
-> Streats1#0001 (Robin)
+> (Alex)  BrainX#5624 <br>
+> (Thies) Thies_vdz#4942 <br>
+> (Robin) Streats1#0001 <br>
