@@ -7,5 +7,5 @@
 
 ### Discord: 
 > (Alex)  BrainX#5624 <br>
-> (Thies) Thies_vdz#4942 <br>
+> (Thies) <a href="https://discord.com/channels/@me">Thies_vdz</a> <br>
 > (Robin) Streats1#0001 <br>
